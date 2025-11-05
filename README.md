@@ -60,7 +60,7 @@ https://github.com/user-attachments/assets/c1d0f846-8260-4cb3-8394-9d180f85eaaf
 
 ## Auteurs
 
-### Étudiant
+### Étudiante
 **Nom** : GHANIMI  
 **Prénom** : Fatima ezzahra
 
